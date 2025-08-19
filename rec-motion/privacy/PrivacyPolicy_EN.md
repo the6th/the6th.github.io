@@ -1,6 +1,6 @@
 # RecMotion Privacy Policy
 
-Last Updated: August 19, 2024
+Last Updated: August 19, 2025
 
 ## Introduction
 
